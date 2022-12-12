@@ -1,1 +1,0 @@
-# qa22_AntoninaKharybina
